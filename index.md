@@ -1,4 +1,4 @@
-# bwg 购买指南
+# Bandwagonhost 购买推荐
 
  Bandwagonhost CN2 GIA-E 2.5G DC6 $34/季度 
  （约￥77/月 三网电信CN2、2.5G大带宽）
