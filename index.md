@@ -19,3 +19,4 @@
 ![2](https://raw.githubusercontent.com/10330384/bandwagonhost-Links/master/step2.jpg)
 
 [back to home](https://10330384.github.io/v2ray-guide/)
+[test](https://whoer.net/zh)
