@@ -17,6 +17,10 @@
 
 Banwagonhost HongKong $49.99/年
 
+[Get bandwagonhost KVM](https://bwh88.net/aff.php?aff=45608&pid=46)
+
+Banwagonhost KVM $19.99/月
+
   
 ## [back to home](https://books.way2guide.ml/)
 
