@@ -1,3 +1,3 @@
-theme: jekyll-theme-midnight
+theme: false
 github:
-  repository_url: http://example.com
+  repository_url: https://books.way2guide.ml
