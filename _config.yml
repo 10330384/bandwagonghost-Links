@@ -2,3 +2,5 @@ theme: jekyll-theme-modernist
 github:
   repository_url: https://books.way2guide.ml
   author_url: https://books.way2guide.ml
+staticman:
+  repository : https://books.way2guide.ml
