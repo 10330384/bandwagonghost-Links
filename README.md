@@ -1,5 +1,9 @@
 # bandwagonhost VPS
 
+[Get bandwagonhost CN2 GIA DC9 limit](https://bwh88.net/aff.php?aff=45608&pid=71)
+
+ Bandwagonhost CN2 GIA DC6 $36/年
+
 [Get bandwagonhost CN2 GIA DC6 limit](https://bwh88.net/aff.php?aff=45608&pid=94)
 
  Bandwagonhost CN2 GIA-E 2.5G DC6 $46/年
