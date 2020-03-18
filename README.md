@@ -30,9 +30,9 @@ Banwagonhost HongKong $49.99/年
 Banwagonhost KVM $19.99/月
 
 
-[Get GigsGigs]
 
-(https://clientarea.gigsgigscloud.com/?affid=1965)
+
+[Get GigsGigs](https://clientarea.gigsgigscloud.com/?affid=1965)
 
 也可以看看 GigsGigs
   
