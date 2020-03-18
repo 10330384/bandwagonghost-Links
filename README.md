@@ -1,4 +1,4 @@
-# bandwagonhost VPS
+# VPS
 
 [Get bandwagonhost CN2 GIA DC9 limit](https://bwh88.net/aff.php?aff=45608&pid=71)
 
@@ -29,6 +29,12 @@ Banwagonhost HongKong $49.99/年
 
 Banwagonhost KVM $19.99/月
 
+
+[Get GigsGigs]
+
+(https://clientarea.gigsgigscloud.com/?affid=1965)
+
+也可以看看 GigsGigs
   
 ## [back to home](https://books.way2guide.ml/)
 
