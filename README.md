@@ -1,31 +1,35 @@
 # VPS
 
-[Get bandwagonhost CN2 GIA DC9 limit](https://bwh88.net/aff.php?aff=45608&pid=71)
+[Get bandwagonhost JP limit](https://bwh89.net/aff.php?aff=45608&pid=104)
+
+ Bandwagonhost JP limit $70/年
+ 
+[Get bandwagonhost CN2 GIA DC9 limit](https://bwh89.net/aff.php?aff=45608&pid=71)
 
  Bandwagonhost CN2 GIA DC9 $36/年
 
-[Get bandwagonhost CN2 GIA DC6 limit](https://bwh88.net/aff.php?aff=45608&pid=94)
+[Get bandwagonhost CN2 GIA DC6 limit](https://bwh89.net/aff.php?aff=45608&pid=94)
 
  Bandwagonhost CN2 GIA-E 2.5G DC6 $46/年
 
-[Get bandwagonhost CN2 GIA DC6](https://bwh88.net/aff.php?aff=45608&pid=87)
+[Get bandwagonhost CN2 GIA DC6](https://bwh89.net/aff.php?aff=45608&pid=87)
 
- Bandwagonhost CN2 GIA-E 2.5G DC6 $34/季度
+ Bandwagonhost CN2 GIA-E 2.5G DC6 $50/季度
 
 
-[Get bandwagonhost CN2 GIA DC9](https://bwh88.net/aff.php?aff=45608&pid=75)
+[Get bandwagonhost CN2 GIA DC9](https://bwh89.net/aff.php?aff=45608&pid=75)
 
  Bandwagonhost CN2 GIA 1G DC9 $26/季度
 
-[Get bandwagonhost CN2 DC8](https://bwh88.net/aff.php?aff=45608&pid=57)
+[Get bandwagonhost CN2 DC8](https://bwh89.net/aff.php?aff=45608&pid=57)
 
  Banwagonhost CN2 1G DC8 $49.99/年
 
-[Get bandwagonhost HK](https://bwh88.net/aff.php?aff=45608&pid=64)
+[Get bandwagonhost HK](https://bwh89.net/aff.php?aff=45608&pid=64)
 
 Banwagonhost HongKong $49.99/年
 
-[Get bandwagonhost KVM](https://bwh88.net/aff.php?aff=45608&pid=46)
+[Get bandwagonhost KVM](https://bwh89.net/aff.php?aff=45608&pid=46)
 
 Banwagonhost KVM $19.99/月
 
