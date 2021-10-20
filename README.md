@@ -2,7 +2,7 @@
 
 [Get bandwagonhost HK limit](https://bwh81.net/aff.php?aff=45608&pid=95)
 
- Bandwagonhost HK limit $70/年
+ Bandwagonhost HK limit $899/年
 
 [Get bandwagonhost JP limit](https://bwh81.net/aff.php?aff=45608&pid=104)
 
