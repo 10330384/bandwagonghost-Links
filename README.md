@@ -1,5 +1,9 @@
 # VPS
 
+[Get bandwagonhost GIA limit](https://bwh81.net/aff.php?aff=66783&pid=105)
+
+ Bandwagonhost GIA limit $89/年
+
 [Get bandwagonhost HK limit](https://bwh81.net/aff.php?aff=45608&pid=95)
 
  Bandwagonhost HK limit $899/年
