@@ -2,30 +2,17 @@
 
 [Bandwagonhost GIA-E limit $89/年](https://bwh81.net/aff.php?aff=66783&pid=105)
 
-[Bandwagonhost HK limit $899/年](https://bwh81.net/aff.php?aff=66783&pid=95)
+[Bandwagonhost HK $899/年](https://bwh81.net/aff.php?aff=66783&pid=95)
 
- 
+[Bandwagonhost JP GIA limit $70/年](https://bwh81.net/aff.php?aff=66783&pid=108)
 
-[Bandwagonhost JP limit $70/年](https://bwh81.net/aff.php?aff=66783&pid=104)
+[Bandwagonhost JP SoftBank limit $70/年](https://bwh81.net/aff.php?aff=66783&pid=104)
 
- 
- 
 [Bandwagonhost CN2 GIA DC9 $36/年](https://bwh81.net/aff.php?aff=66783&pid=71)
-
- 
-
-[Bandwagonhost CN2 GIA-E 2.5G DC6 $46/年](https://bwh81.net/aff.php?aff=66783&pid=94)
-
- 
 
 [Bandwagonhost CN2 GIA-E 2.5G DC6 $50/季度](https://bwh81.net/aff.php?aff=66783&pid=87)
 
- 
-
-
-[ Bandwagonhost CN2 GIA 1G DC9 $26/季度](https://bwh81.net/aff.php?aff=66783&pid=75)
-
-
+[Bandwagonhost CN2 GIA 1G DC9 $26/季度](https://bwh81.net/aff.php?aff=66783&pid=75)
 
 [Banwagonhost CN2 1G DC8 $49.99/年 最便宜](https://bwh81.net/aff.php?aff=66783&pid=57)
 
