@@ -16,6 +16,8 @@
 
 [Banwagonhost CN2 1G DC8 $49.99/年 最便宜](https://bwh81.net/aff.php?aff=66783&pid=57)
 
+[Banwagonhost DC2 $19.99/月 最低价](https://bwh81.net/aff.php?aff=66783&pid=46)
+
 
 [也可以看看 GigsGigs](https://clientarea.gigsgigscloud.com/?affid=1965)
 
