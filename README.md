@@ -1,3 +1,5 @@
+# JMS
+[Jms $5.88/月](https://justmysocks3.net/members/aff.php?aff=19499)
 # VPS
 
 [Bandwagonhost GIA-E limit $89/年](https://bwh81.net/aff.php?aff=66783&pid=105)
