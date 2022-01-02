@@ -6,7 +6,7 @@
 
 [Bandwagonhost HK $899/年](https://bwh81.net/aff.php?aff=66783&pid=95)
 
-[Bandwagonhost JP GIA limit $70/年](https://bwh81.net/aff.php?aff=66783&pid=108)
+[Bandwagonhost JP GIA $899/年](https://bwh81.net/aff.php?aff=66783&pid=108)
 
 [Bandwagonhost JP SoftBank limit $70/年](https://bwh81.net/aff.php?aff=66783&pid=104)
 
