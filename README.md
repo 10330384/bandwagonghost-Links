@@ -4,7 +4,7 @@
 
 > [Bandwagonhost GIA-E limit $89/年](https://bwh81.net/aff.php?aff=67236&pid=105)
 
- [Bandwagonhost GIA limit $79/年](https://bwh81.net/aff.php?aff=67236&pid=112)
+> [Bandwagonhost GIA limit $79/年](https://bwh81.net/aff.php?aff=67236&pid=112)
 
 > [Bandwagonhost HK $899/年](https://bwh81.net/aff.php?aff=67236&pid=95)
 
