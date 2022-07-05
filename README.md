@@ -1,9 +1,9 @@
 # JMS
 > [Jms $5.88/月](https://justmysocks3.net/members/aff.php?aff=19499&pid=2)
 
-> [IPLC $21/月](https://justmysocks3.net/members/aff.php?aff=19499&pid=9)
+> [IPLC 100GB $21/月](https://justmysocks3.net/members/aff.php?aff=19499&pid=9)
 
-> [Jms $49/月](https://justmysocks3.net/members/aff.php?aff=19499&pid=10)
+> [IPLC 300GB $49/月](https://justmysocks3.net/members/aff.php?aff=19499&pid=10)
 
 # VPS
 
